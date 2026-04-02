@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAPN911030MTSRRR06
+CAPN911030MTSRRR06
